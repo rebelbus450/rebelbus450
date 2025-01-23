@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rebelbus450
 - 👀 I’m new to progaming
-- 🌱 I’m currently learning the basicx
+- 🌱 I’m currently learning the basics
   
 - 📫 How to reach me bruninhost1625@gmail.com
 
